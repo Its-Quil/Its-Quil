@@ -7,4 +7,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about how hungry I am right now.
 - 📫 How to reach me: Not thanks.
 - 😄 Pronouns: He/him
-- ⚡ Fun fact: I only have one kidney... sold it or lost it... That's up to imagination.
+- ⚡ Fun fact: I only have one kidney... sold it or lost it... That's up to speculation.
